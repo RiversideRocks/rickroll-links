@@ -35,3 +35,4 @@ Juicy rickroll links
 - [https://www.youtube.com/watch?v=ikFZLI4HLpQ](https://www.youtube.com/watch?v=ikFZLI4HLpQ) - Building Demolition *gone wrong* but rickroll
 - [https://youtu.be/Y5zbaF097lQ](https://youtu.be/Y5zbaF097lQ) -Whats inside the FNaF box? but rickroll
 - [https://youtu.be/hNfDNORPU4Y](https://youtu.be/hNfDNORPU4Y) - A dog song [Borkrica [Toto]] but rickroll
+- [https://youtu.be/-ioFOx_pE6w](https://youtu.be/-ioFOx_pE6w) - Fortnite *NEW* OP SKIN!!!! 😳 but rickroll
