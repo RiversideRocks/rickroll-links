@@ -44,3 +44,4 @@ Juicy rickroll links
 - [https://youtu.be/EE-xtCF3T94](https://youtu.be/EE-xtCF3T94) - Who's That Pokemon? but rickroll
 - [https://youtu.be/j5a0jTc9S10](https://youtu.be/j5a0jTc9S10) - Cute Little Puppy Doing Cute things but rickroll
 - [https://youtu.be/0EY98EsPXs8](https://youtu.be/0EY98EsPXs8) - Jigglypuff's new song but rickroll
+- [https://youtu.be/V-_O7nl0Ii0](https://youtu.be/V-_O7nl0Ii0) - Nice Ocean Waves but rickroll
