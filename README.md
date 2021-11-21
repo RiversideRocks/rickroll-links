@@ -25,7 +25,7 @@ Juicy rickroll links
 - [https://discordgift.site/store/en-US/p/discord--discord-nitro](https://discordgift.site/store/en-US/p/discord--discord-nitro) - Epic Games Free Nitro [redirects to rickroll] {works with discord}
 - [https://dis.cord.gifts/c/ShN2lWR5JLdQfk6y](https://dis.cord.gifts/c/ShN2lWR5JLdQfk6y) - New Discord Nitro Classic [redirects to rickroll] {works with discord}
 
-## Discord rickroll
+## Youtube rickroll
 - [https://www.youtube.com/watch?v=tzYPr9w22VU](https://www.youtube.com/watch?v=tzYPr9w22VU) - spongebob song but rickroll
 - [https://www.youtube.com/watch?v=xfr64zoBTAQ](https://www.youtube.com/watch?v=xfr64zoBTAQ) - Breaking news but rickroll
 - [https://www.youtube.com/watch?v=oJl25bABYac](https://www.youtube.com/watch?v=oJl25bABYac) - Tesla's free energy secrets revealed! but rickroll
@@ -36,3 +36,4 @@ Juicy rickroll links
 - [https://youtu.be/Y5zbaF097lQ](https://youtu.be/Y5zbaF097lQ) -Whats inside the FNaF box? but rickroll
 - [https://youtu.be/hNfDNORPU4Y](https://youtu.be/hNfDNORPU4Y) - A dog song [Borkrica [Toto]] but rickroll
 - [https://youtu.be/-ioFOx_pE6w](https://youtu.be/-ioFOx_pE6w) - Fortnite *NEW* OP SKIN!!!! 😳 but rickroll
+- [https://youtu.be/tXzng395qq0](https://youtu.be/tXzng395qq0) - Best Video Ever but rickroll
