@@ -40,3 +40,4 @@ Juicy rickroll links
 - [https://youtu.be/5U4R6fW-P0s](https://youtu.be/5U4R6fW-P0s) - Beat Saber || Overkill 360° by Riot (Expert+) First Attempt + Full Combo || Mixed Reality but rickroll
 - [https://youtu.be/J_DsOPcPiR0](https://youtu.be/J_DsOPcPiR0) - What happens when system year is more than 9999 but rickroll
 - [https://youtu.be/Dzv7NfPz1Yc](https://youtu.be/Dzv7NfPz1Yc) -HOW TO HACK TIKTOK LIKES FOR FREE!!!! (99.9% WORK) but rickroll
+- [https://youtu.be/cqF6M25kqq4](https://youtu.be/cqF6M25kqq4) - Patrick's Secret Box - The Truth but rickroll
