@@ -11,7 +11,7 @@ Juicy rickroll links
 - [https://ftp.gameknight2k.com/](https://ftp.gameknight2k.com/) - beautiful ftp panel and fast loading which I can't say about some other websites.
 - [http://free-downloads.glitch.me/](http://free-downloads.glitch.me/) - you can specify some words by adding stuff after a # in the url to show up. This is ineffective without autoplay.  
 - [beta.battlecord.xyz](https://beta.battlecord.xyz) - Redirects you to the official ![](https://cdn.discordapp.com/emojis/769486756977967114.gif?v=1&size=32) Video.
-- [free-discord-nitro.dheeraj2008.repl.co](https://free-discord-nitro.dheeraj2008.repl.co) - Rickrolling by telling you have been gifted Discord Nitro.
+- ~~[free-discord-nitro.dheeraj2008.repl.co](https://free-discord-nitro.dheeraj2008.repl.co) - Rickrolling by telling you have been gifted Discord Nitro.~~ This got flagged :(
 - [https://my-website.dheeraj2008.repl.co](https://my-website.dheeraj2008.repl.co) - Tells We use cookies to improve your experience. If you're ok with that please click accept. either u decline/accept u get rickrolled.
 ## Raw Video
 - [fwesh.yonle.repl.co/*](https://fwesh.yonle.repl.co) - It gives Rickroll raw video than redirect you to Youtube Video. Also works on discord or anywhere.
@@ -33,3 +33,4 @@ Juicy rickroll links
 - [https://www.youtube.com/watch?v=LjQZaD9EEJ0](https://www.youtube.com/watch?v=LjQZaD9EEJ0) - Shrek 5 TRAILER but rickroll
 - [https://www.youtube.com/watch?v=s0akG-V_Y30](https://www.youtube.com/watch?v=s0akG-V_Y30) - The truth the government doesn't want you to know about shelter in place but rickroll
 - [https://www.youtube.com/watch?v=ikFZLI4HLpQ](https://www.youtube.com/watch?v=ikFZLI4HLpQ) - Building Demolition *gone wrong* but rickroll
+- [https://youtu.be/Y5zbaF097lQ](https://youtu.be/Y5zbaF097lQ) -Whats inside the FNaF box? but rickroll
